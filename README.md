@@ -127,3 +127,4 @@ Peter Cat : Total Votes: 7,574
 Truffles : Total Votes: 4,841
 Joey’s : Total Votes: 3,903
 These establishments not only command noteworthy ratings but also have garnered a substantial number of votes, indicative of their widespread appeal and active patronage. Such insights are pivotal for industry stakeholders seeking to understand the dynamics of consumer engagement and make informed decisions in the competitive landscape of the culinary domain.
+Thanks You
